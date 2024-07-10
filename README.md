@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shalinshh723@gmail.com**
 
-- 📄 Know about my experiences [bit.ly/shalin-resume](bit.ly/shalin-resume)
+- 📄 Know about my experiences [bit.ly/shalin-resume](https://bit.ly/shalin-resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
